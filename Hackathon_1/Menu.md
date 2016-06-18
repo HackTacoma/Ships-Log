@@ -20,11 +20,12 @@
 * Chocolate Chip Cookies :cookie::cookie:
 
 ##Miscellaneous:
-* :banana:
+* :banana: 
 * :tangerine:
 * Yogurt 
 * Trail Mix
 * Mini Wheats Cereal
 * Diet Dr Pepper
+* Coca Cola
 
 ######_*Coffee supplied by Evergreen Cafe' located in Downtown Tacoma*_
