@@ -1,5 +1,5 @@
 #hack tacoma
    hack tacoma is a twenty four hour session to build an application. the application is to locate street art or grafitti by not only street and city but by longitude and latitude on iphone or andriod systems. I came in to the hackathon at about two p.m. right after all the coders took a nice break so perfect timing. I myself am not a coder or really even a computer literate so I can give an outsiders view on the event. As soon as I walked in I noticed it was a very diverse but dedictated group for the project. The enviroment was very loose and active for the project. The group was pretty far along as I walked in because they started at midnight the night before. As the groups creative juices were flowing they hit a few road blocks but because of all the genius minds working together they were able to create solutions and create the app. It is a really smart idea if you are into street art or grafitti yourself this is a fun application. If you are a street artist yourself this could be very useful as well. All in all i beleive the event was very successful in accomplishing what they set out to do.
-   ###blakester 
+   ##blakester 
 
 
