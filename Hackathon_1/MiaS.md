@@ -4,6 +4,7 @@
 
 ###So Far:
  - Baked bagel bites at 3:00AM
- - Made Blueberry Pancakes (from scratch), Bacon, and Eggs. Fed 10 people
+ - Made Blueberry Pancakes (from scratch), Bacon, and Eggs at 6:30AM. Fed 10 people
+ - Picked up Coffee from Evergreen at 7:45AM. THANK YOU EVERGREEN! 
  
 ##All is coming together very nicely :)
