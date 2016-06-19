@@ -8,3 +8,7 @@
  - Picked up Coffee from Evergreen at 7:45AM. THANK YOU EVERGREEN! 
  
 ##All is coming together very nicely :)
+
+#End of the event --
+
+##It is 21:06 and we are celebrating the success. 
