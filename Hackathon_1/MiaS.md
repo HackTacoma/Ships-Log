@@ -1,8 +1,8 @@
-#Intro :panda_face:
+#Intro :computer:
 
-##The cooking department was given $250 to buy groceries for the whole event. Siera and I came together and made out a meal plan that will feed the whole team, 10 people, yet staying within budget. We decided to make Bagel Bites, Pancakes with Eggs and Bacon, Teriyaki Chicken with Rice, and Lasagna with Salad & Breadstix. I will keep all of the receipts to calculate the total amount spent after we go grocery shopping. I already spent $50 at Costco Friday evening to buy the little things needed, so we have about $200 left to spend. I believe this will be enough to cover the food costs.
+##The cooking department was given $250 to buy groceries for the whole event. Sierrah and I came together and made out a meal plan that will feed the whole team, 10 people, yet staying within budget. We decided to make Bagel Bites, Pancakes with Eggs and Bacon, Teriyaki Chicken with Rice, and Lasagna with Salad & Breadstix. I will keep all of the receipts to calculate the total amount spent after we go grocery shopping. I already spent $50 at Costco Friday evening to buy the little things needed, so we have about $200 left to spend. I believe this will be enough to cover the food costs.
 
-##We are 30 minutes away from working for 12 hours straight. Wow!
+##We are 30 minutes away from working for 12 hours straight. Wow! The playlist on Spotify is pretty good :speaker:
 
 ###So Far:
  - Went to Winco to buy groceries at 0200
@@ -15,8 +15,8 @@
 
 ###Update:
  - We all took an hour break and some of us went to Point Ruston to catch a breather. When we came back it was almost time for lunch
- - At 1200 Sierra started pre-making the postickers
- - Served lunch at 1300; Potstickers, Teriyaki Chx Rice Bowls -- No leftovers!
+ - At 1200 Sierrah started molding the postickers
+ - Served lunch at 1300; Potstickers, Teriyaki Chx Rice Bowls -- No leftovers
  - At 1400 everyone went back to coding after eating lunch together. Sierra and I cleaned up and took a break.
 
 ###Update:
